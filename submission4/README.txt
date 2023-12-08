@@ -2,7 +2,7 @@ Overleaf link with edit access :
 https://www.overleaf.com/1376324265wktbwypkdhgd#310c27
 
 Link to unlisted YouTube video:
-https://youtube.com/.....
+https://youtu.be/Bod4lz6JNXs
 
 Paper title:
 Sound of Silence : Transforming Visuals into Audio For the Blind
