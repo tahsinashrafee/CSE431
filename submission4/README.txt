@@ -7,9 +7,6 @@ https://youtube.com/.....
 Paper title:
 Sound of Silence : Transforming Visuals into Audio For the Blind
 
-Paper presentation (anyone can view without login):
-http://slides.google.com/
-
 Group Number:
 18
 
