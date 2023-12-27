@@ -1,0 +1,18 @@
+Overleaf link with edit access :
+https://www.overleaf.com/1376324265wktbwypkdhgd#310c27
+
+Link to unlisted YouTube video:
+https://youtu.be/cbjIGnKR5oA
+
+Paper title:
+Sound of Silence: Transforming Visual Data into Audible Information for Visually Impaired Bengali Speakers
+
+Paper presentation (anyone can view without login):
+https://docs.google.com/presentation/d/1Kc1M5JsSd5wuC0Vfy5wEAhjS81k2TpwqIpTP378b51w/edit?usp=sharing
+
+Group Number:
+18
+Group Members:
+20301088 Tahsin Ashrafee Susmit
+20301072 Isratul Hasan
+20301264 Maliha Mehejabin
